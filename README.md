@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RoboticWrapper
+- 👀 I’m interested in ... gamemaking
+- 🌱 I’m currently learning ... 3d moddling
+- 💞️ I’m looking to collaborate on ... nothing please leave me be
+- 📫 How to reach me ... discord i guess RoboticWrapper#9784
